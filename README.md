@@ -1,4 +1,5 @@
-# 杀戮尖塔2 娘化故障机器人 Slay The Spire 2 Anime Defect Skin Mod
+# 杀戮尖塔2 娘化故障机器人
+## Slay The Spire 2 Anime Defect Skin Mod
 
 ——————————
 
